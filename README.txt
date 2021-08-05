@@ -1,1 +1,1 @@
-everything automation
+everything cognitized
