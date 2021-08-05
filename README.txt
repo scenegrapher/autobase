@@ -1,1 +1,1 @@
-everything cognitized
+everything cognitize
